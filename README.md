@@ -15,7 +15,7 @@ Science Forum Nashik is an Association of Persons
 <h2>Important Decisions</h2>
 [IMPORTANT_DECISIONS]
 <!-- Example: -->
-<a href="decisions/october-28-2025.pdf" target="_blank">
+<a href="decisions/october-28-2025.pdf" target="https://drive.google.com/file/d/1ZK5zA2C1DYTtx6EJECP_LD-GsDQdhCgZ/view?usp=sharing">
    October 28, 2025 Meeting – Form 9.1.B (Approved Forms + LG Mobile Lab + Teacher Workshop)
 </a>
 
