@@ -36,7 +36,7 @@ The AOP shall strive to realize the following:
 <h2>List of Members </h2>
 The list of all the members as of 01 Nov 2025 are mentioned in Deed Document.
 <!-- Example: --><p>
-<a href="[DEED_PDF]" target="_blank">You may see the full text of the AOP Deed (25 Sep 2025) here. </a>
+<a href="https://github.com/rajendravadnere-web/Scienceforum/blob/main/AOP_deed_24SEPT2025.pdf" target="_blank">You may see the full text of the AOP Deed (25 Sep 2025) here. </a>
 >
 <!-- ===== IMPORTANT DECISIONS ===== -->
 <h2>Important Decisions</h2>
