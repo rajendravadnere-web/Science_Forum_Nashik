@@ -1,4 +1,5 @@
 <meta name="viewport" content="width=device-width, initial-scale=1">
+<title>Science Forum Nashik - AOP</title>
 <img src="Logo.jpg" alt="Science Forum Nashik Logo" width="150">
 
 # Science Forum Nashik
