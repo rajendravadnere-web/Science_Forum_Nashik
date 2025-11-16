@@ -34,6 +34,9 @@ As of 01 Nov 2025 – see full Deed PDF below.
 
 
 ## Upcoming Events
+**Meeting Date:** 18 November 2025 | 1930 Hrs | Virtual  
+[Notification of all the Items and Annexures :](https://drive.google.com/file/d/1ZK5zA2C1DYTtx6EJECP_LD-GsDQdhCgZ/view?usp=sharing) 
+
 - Video Clip Competition 2026 to be concluded on 28 February 2026 (Under Development)
 
 ## Past Events
