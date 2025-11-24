@@ -38,7 +38,7 @@ As of 01 Nov 2025 – see full Deed PDF below.
 
 ## Upcoming Events
 
-** State Level Competition 2026 for making Science Activity Videos Based on Textbook (Under Development)
+** State Level Competition 2026 for making Science Activity Videos Based on Textbook
 
 [Information including Terms and Contitions of Competition:](https://docs.google.com/document/d/1szBHRXlV_0dBsNabgjKqb8nwpvZ0LFhD/edit?usp=sharing&ouid=117018900723103727942&rtpof=true&sd=true)
 
@@ -47,9 +47,8 @@ As of 01 Nov 2025 – see full Deed PDF below.
 ## Past Events
 Teacher's Workshop on Activity Based Teaching: [YouTube Playlist](https://www.youtube.com/watch?v=DlFy56HWqBw&list=PLP7UR0ZnLgb6VAlMbeMMR2cTvFTpTNeAz)
 <p></p>
-Vacation Hobby Classes May-June 2025:
 
-[YouTube Playlist](https://www.youtube.com/watch?v=WAuGKdc50nc&list=PLP7UR0ZnLgb6jEZCnYkxf1CSWJZScO596)
+Vacation Hobby Classes May-June 2025:  [YouTube Playlist](https://www.youtube.com/watch?v=WAuGKdc50nc&list=PLP7UR0ZnLgb6jEZCnYkxf1CSWJZScO596)
 
 
 ## Caveat
