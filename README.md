@@ -35,12 +35,11 @@ As of 01 Nov 2025 – see full Deed PDF below.
 **Meeting Date:** 18 November 2025 | 1930 Hrs | Virtual  
 [Notification of all the Items, Annexures and Decisions by the Account Holders:](https://drive.google.com/file/d/1tx19ts3AZx6enB3KyHgeUBI4l0yeITDt/view?usp=sharing)
 
-
 ## Upcoming Events
 
 ** State Level Competition 2026 for making Science Activity Videos Based on Textbook
 
-[Information including Terms and Contitions of Competition:](https://docs.google.com/document/d/1szBHRXlV_0dBsNabgjKqb8nwpvZ0LFhD/edit?usp=sharing&ouid=117018900723103727942&rtpof=true&sd=true)
+[Information including Terms and Contitions of Competition:](https://tinyurl.com/4f78s8pz)
 
 [Google Form for Teachers](https://docs.google.com/forms/d/1gqeEWb7t3fDdB2f_TUy4LniPyemYnYteI74E9wB_29w/edit)
 
