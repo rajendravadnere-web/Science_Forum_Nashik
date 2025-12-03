@@ -25,7 +25,7 @@ The YouTube Channel of the Science Forum showing various activities may be found
 (2.6) to make use of the technology including information and communication technology (ICT) to achieve its objectives in cost-effective, efficient and effective manners.
 
 ## List of Members
-As of 01 Nov 2025 – see full Deed PDF below.
+As of 01 Dec 2025 – see full Deed PDF below.
 [Deed Document Text](https://drive.google.com/file/d/1Eq701PrOZye3QMLL-CditYYc9pdmk678/view?usp=sharing)
 ## Important Decisions – 
 
@@ -42,6 +42,11 @@ As of 01 Nov 2025 – see full Deed PDF below.
 [Information including Terms and Contitions of Competition:](https://tinyurl.com/4f78s8pz)
 
 [Google Form for Teachers](https://docs.google.com/forms/d/1gqeEWb7t3fDdB2f_TUy4LniPyemYnYteI74E9wB_29w/edit)
+
+[Presentation about the competition: YouTube](https://youtu.be/aRAC3AB3YMc)
+
+[How to fill Competition Form: YouTube](https://youtu.be/rXHxG2BOqpQ)
+
 
 ## Past Events
 Teacher's Workshop on Activity Based Teaching: [YouTube Playlist](https://www.youtube.com/watch?v=DlFy56HWqBw&list=PLP7UR0ZnLgb6VAlMbeMMR2cTvFTpTNeAz)
